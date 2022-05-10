@@ -1,4 +1,4 @@
-## CMUBetter
+## CMU Better
 
 Contact Page
 
